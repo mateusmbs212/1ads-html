@@ -1,3 +1,3 @@
 # 1ads-html
 
-aloalaoalaoaoallaoaoalaoao
+acima de ne mim só Deus
